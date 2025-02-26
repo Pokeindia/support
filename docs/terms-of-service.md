@@ -25,7 +25,7 @@ Keep in mind that our staff team is comprised of volunteers. They are here to he
 
 ## 5. Advertising/endorsing other servers is not allowed
 
-Advertising or endorsing another Minecraft Bedrock Edition server is strictly prohibited at NetherGames. You may mention other servers if they are used to provide context in a conversation. However, any further discussion relating to another server will be treated as advertising.
+Advertising or endorsing another Minecraft Bedrock Edition server is strictly prohibited at Your social media and netherGames. You may mention other servers if they are used to provide context in a conversation. However, any further discussion relating to another server will be treated as advertising
 
 ## 6. Keep your personal information safe
 
